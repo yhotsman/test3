@@ -1,1 +1,1 @@
-https://yhotsman.github.io/rsschool-2019Q1-cv/cv.
+https://yhotsman.github.io/test3/cv.
